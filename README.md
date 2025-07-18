@@ -1,2 +1,0 @@
-# Ashwanth-practices
-# Ashwanth-practices
